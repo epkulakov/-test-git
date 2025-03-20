@@ -1,1 +1,1 @@
-rwteyrutigyoup;'[
+проверка git 
